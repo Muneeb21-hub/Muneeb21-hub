@@ -38,7 +38,7 @@ I am currently enhancing my skills in reinforcement learning and exploring advan
 
 I'm always open to new opportunities, collaborations, and discussions. Feel free to reach out to me:
 
-- LinkedIn: [](www.linkedin.com/in/muneeb-u-rehman-abro-web-developer-ai-solutions)
+- LinkedIn: [Let's Contact me](www.linkedin.com/in/muneeb-u-rehman-abro-web-developer-ai-solutions)
 - Email: muneeburehman.dev@gmail.com
 
 Let's create something amazing together! 🌟
